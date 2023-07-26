@@ -1,13 +1,7 @@
-![image](https://github.com/siamsaleh/MyBlogReact/assets/55757774/5da11e6f-258c-4a90-b6d0-98005f9817df)
+![image](https://github.com/siamsaleh/MyBlog/assets/55757774/2091508b-1315-40b7-abc5-dd200cf6d45f)
 
 
+![image](https://github.com/siamsaleh/MyBlog/assets/55757774/6c2b7017-f9ed-4452-8c34-a1e3be4d9386)
 
 
-![image](https://github.com/siamsaleh/MyBlogReact/assets/55757774/55e94137-78ad-4b9c-83f4-bc0c6347da4c)
-
-
-
-
-![image](https://github.com/siamsaleh/MyBlogReact/assets/55757774/4984c0c9-0ae0-445f-8e9d-89d2e2a9b66d)
-
-
+![image](https://github.com/siamsaleh/MyBlog/assets/55757774/3416324a-d43f-4eef-85db-ddffd2a93fd6)
